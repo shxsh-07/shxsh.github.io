@@ -1,2 +1,0 @@
-# shxsh.github.io
-Webpage
